@@ -52,6 +52,6 @@ hglanz [at] calpoly [dot] edu
 Amherst College  
 nhorton [at] amherst [dot] edu  
 
-**Adam Sullivan**  
+**Adam J Sullivan**  
 Takeda Pharmaceutical Company Ltd  
-
+adam [at] sullivanstatistics [dot] com  
